@@ -1,1 +1,1 @@
-# PRP-Earning-Hub-
+# Praise-Jah-Graphics-Gallery-
